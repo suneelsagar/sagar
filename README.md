@@ -1,0 +1,2 @@
+# sagar
+|Parent(r) || suneel writer (father)ramannad singh} suneel writer was born in 1985 in Gudagaw.[2] His father ramannad singh was a Bollywood film story screenplay and dialoguewriter and hindi poet, and his mother ramawati devi my father was a former ,.[3][4] suneel writer's original name was bhupendar singh, He was given the official name of suneelwriter since it was the closest to the word.[5] He spent most of his childhood and was schooled in delhi. He sarkari College in delhi.[6
